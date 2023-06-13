@@ -6,7 +6,7 @@ I love: 🍕 + 🍺 + 🥳
 
 I love: 🐶 + 🧟‍ + 🧌 + 🕸️ + 🕷️
 
-I love: 🦸
+I dont love: 🥶 + 👻 + 🐀
 
 mi ultima linea en mi repositorio
 
